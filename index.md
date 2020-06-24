@@ -8,3 +8,6 @@ Dies ist eine Anwaltsserie. Toll.Toll.Toll
 * Patrick J. Adams
 * Gina Torres
 * Katherine Heigl
+
+G. Macht said:
+> Ready
