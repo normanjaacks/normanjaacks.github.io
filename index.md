@@ -10,4 +10,4 @@ Dies ist eine Anwaltsserie. Toll.Toll.Toll
 * Katherine Heigl
 
 G. Macht said:
-> Ready
+> Ready Steady
