@@ -11,3 +11,5 @@ Dies ist eine Anwaltsserie. Toll.Toll.Toll
 
 G. Macht said:
 > Ready Steady
+
+<img src="https://i.ytimg.com/vi/WU0xupfdNg0/maxresdefault.jpg"/>
